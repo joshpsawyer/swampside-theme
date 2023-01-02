@@ -1,0 +1,1 @@
+# stumpside-cottage-theme
